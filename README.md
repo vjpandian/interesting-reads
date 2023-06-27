@@ -8,4 +8,4 @@
 
 #### Tech
 
-- [Resume](https://roxanageambasu.github.io/public/geambasu_cv.pdf?utm_source=pocket_saves)
+- Columbia University Prof [Resume](https://roxanageambasu.github.io/public/geambasu_cv.pdf?utm_source=pocket_saves)
